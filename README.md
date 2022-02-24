@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Chuypri
 - 👀 I’m interested in coding
-- 🌱 I’m currently new to this and have zero experience
+- 🌱 I’m currently new to this and have zero experience so i welcome all the help i can get
 - 💞️ I’m looking to collaborate with everyone
 - 📫 you can reach me via WhatsApp+255766776532
 
